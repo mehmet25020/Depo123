@@ -1,1 +1,1 @@
-Bu dosyayı açmadan önce birkaç defa düşünün
+Bunu açmadan önce birkaç defa düşünün
